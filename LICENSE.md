@@ -1,4 +1,4 @@
-#  
+#  Experience be a lucky block like never before with be a lucky block advanced Scripts, the #1 Script. Includes one-hit kill and teleport for
 
 
 
